@@ -1,2 +1,2 @@
 # Animax-COPY
-Animax website-iig duurailgaj hiihiih oroldov
+Animax website-iig duurailgaj hiihiig oroldov
